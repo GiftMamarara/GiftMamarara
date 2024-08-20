@@ -1,4 +1,4 @@
-### 👋 Hi, I’m @Gift Mamarara
+### 👋 Hi, I’m Gift Mamarara
 
 Welcome to my GitHub profile! I’m currently an intern at Unitacsolution, where I’m growing my skills and contributing to exciting projects.
 
